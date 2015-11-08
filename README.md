@@ -1,0 +1,8 @@
+# Go
+I am very encouraged by how Dropbox was created and how it was created. Let's Go!
+### I think a lot about myself and the world around me. Like every other common person, I work at day and take rest when I am tired, and find some way to lessen my pressure like watching basketball games.
+### But whatever I do, I need to think about the questions like: who am I? What is the world? What can I do to improve myself and possibly to provide for this world. Even though there are negative news everyday, earthquake, car accidents, gun shooting, war, disease, floods, etc., but we should know that this is the best era of all times and this world is getting better and better every day. People around the world are doing what they can to improve this world. They think, have an idea, then put it into action. Even though many times they may fail, but they are great people for what they do. They are willing to try and their greatness is not determined by their failure, let alone some will succeed.
+### I feel I am much mature than before for the reason that:
+### First, I keep positive everyday; Second, I think everyday; Third, I am inspired by a lot people and want to do what I can to help improve this world.
+### I am inspried by what this world has provided you: Internet, IT, all the devides people can use to communicate. Sometimes I so excited that I can't calm myself or can't fall sleep at night. I even feel excited about something happened in my dream that I wake up at midnight.
+### God give me a talent, and I will not waste it! I will use it to do something, whether the result is success or failure.
